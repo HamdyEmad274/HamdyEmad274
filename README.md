@@ -18,6 +18,7 @@ Let's Connect! 🤝
 I'm always open to new opportunities, collaborations, and conversations. Feel free to reach out to me via:
 
 📧 Email: hamdyemad274@gmail.com
+
 💼 LinkedIn: www.linkedin.com/in/hamdy-emad-624058186
 
 Looking forward to connecting with you!
